@@ -1,4 +1,4 @@
-Hi 
+Hi,
 Do you want to know more about me ? If YES ?
 A Few Things You Might Want to Know About Me include :
 My Name is Ousainou Bah and i live in The Gambia (West Africa)
